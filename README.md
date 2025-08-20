@@ -1,1 +1,1 @@
-college website
+ESTC kaniya college website 
